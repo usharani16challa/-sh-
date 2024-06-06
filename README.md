@@ -1,2 +1,0 @@
-# -sh-
-Myself Challa usharani 
